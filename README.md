@@ -1,2 +1,0 @@
-# arthur
-leia ai
